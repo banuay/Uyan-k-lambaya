@@ -1,1 +1,0 @@
-# Uyan-k-lambaya
